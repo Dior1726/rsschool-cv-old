@@ -1,1 +1,1 @@
-# https://dior1726.github.io/rsschool-cv/cv
+# https://dior1726.github.io/rsschool-cv/
